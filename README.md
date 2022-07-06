@@ -11,5 +11,5 @@ Here are some ideas to get you started
 - 🤔 I’m looking for help with breaking technical concepts
 - 💬 Ask me about my learning journey
 - 📫 How to reach me https://twitter.com/badrutee?
-- 😄 Pronouns: (SHR/HER/HER)
+- 😄 Pronouns: (SHE/HER/HER)
 - ⚡ Fun fact: my favorite subject in school was mathematics 
